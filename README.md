@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PutraSihombingdev
-- 👀 I’m interested in game development
+- 👀 I’m interested in cyber security & programming
 - 🌱 I’m currently learning at Ganesha University of Education majoring in Informatics Engineering
 - 💞️ I’m looking to collaborate on ??
 - 📫 How to reach me Ig:@putraaasihombing
